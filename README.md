@@ -45,7 +45,7 @@ User Settings
 
 ## Cruella de Vil Promo Sign
   - Dark theme is required.
-  -  Shot of Cruella (Emma Stone), Jasper and Horace with the 3 Dalmatians and Baddy.
+  -  Shot of Cruella (Emma Stone), Jasper and Horace with the 3 Dalmatians and Buddy.
 - - - 
 
 Server chat + User popout
